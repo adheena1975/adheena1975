@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @adheena1975
+- 👀 I’m interested in everything(I am finding myself what is best sjuited for me.I always try new things that catch in my eyes)
+- 🌱 I’m currently learning Btech 
+- 💞️ I’m looking to collaborate on [     :)    ]
